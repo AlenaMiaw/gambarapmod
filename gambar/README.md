@@ -1,2 +1,2 @@
 # gambarapmod
-bshsh
+tidak ada
